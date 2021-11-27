@@ -1,0 +1,2 @@
+# hayao-miyazaki
+Za Solo
